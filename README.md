@@ -1,2 +1,1 @@
-# hello-world
-testi repository
+lol, kuulin vähä juttuu et olit triplaginekses.
